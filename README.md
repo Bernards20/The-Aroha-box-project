@@ -1,0 +1,2 @@
+# The-Aroha-box-project
+The  Bento box This product is made for families in need for a little help putting food on the table, originally we were using plastic containers for the food. My group have tried to make a better box for this, one with no waste, easy to clean, but most importantly is easy to use and function. The size is A4 which is enough for an average sized family (4), giving separate sections incase of any allergies. There are 3 different compartments that can all be taken out, the lid, middle and then the bottom. using wax paper to make it waterproof.  
